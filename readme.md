@@ -1,2 +1,1 @@
-Enjoy your life!
-Be alone from inner side...
+thanks for viewing!
